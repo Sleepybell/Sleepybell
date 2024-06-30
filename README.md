@@ -1,0 +1,3 @@
+- Eu vou basicamente ser o Sebastian de Stardew Valley na vida real.
+- 😄 Pronouns: ele/dela
+- 
